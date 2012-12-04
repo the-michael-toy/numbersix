@@ -16,10 +16,6 @@ This sauce is not for sale. The recipe is right here, feel free to
 make your own. Or you can wait until the next time I make a batch,
 and get one in a bottle with a label of great goodness.
 
-Speaking of the label, in exchange for hot sauce, Master of Line
-and Leverage Paul Soupiset designed the label. The sauce and the
-logo are both full of awesome, and that is the truth.
-
 I am always looking for excuses to use the hot sauce. Here is a
 short list of things the sauce makes better:
 
