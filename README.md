@@ -1,4 +1,6 @@
-This is Number Six ( this is a old version of http://toyland.org/numbersix )
+This is Number Six
+==================
+
 
 Once upon a time there was a yummy hot sauce that you could buy in
 stores. It was just hot enough to be interesting, but not so hot
@@ -28,6 +30,7 @@ does not make better:
     Vanilla Ice Cream, American Politics
 
 The Recipes
+===========
 
 The best secrets are the one you tell everyone, every chance you
 get. This sauce is meant to be that kind of secret, which is why
